@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Nilesh2925
 - 👀 I’m interested in coding and learning new things related to technology..
 - 🌱 I’m currently pursuing B-TECH from gcoea...
-- 💞️ I’m looking to collaborate on top most componys..
+- 💞️ I’m looking to collaborate on top most companies..
 - 📫 How to reach me @nilesh2003chavan
 
 <!---
